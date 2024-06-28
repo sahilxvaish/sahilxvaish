@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **sahilxvaish@gmail.com**
 
-- 📄 Know about my experiences [file:///F:/Resume%20&%20Cover%20letter/SAHIL%20VAISH%20editable%20format%20(1).pdf](file:///F:/Resume%20&%20Cover%20letter/SAHIL%20VAISH%20editable%20format%20(1).pdf)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fEyawTLd_lA1SYk1wMIMbeVkRhQvdHvi/view?usp=drive_link](https://drive.google.com/file/d/1fEyawTLd_lA1SYk1wMIMbeVkRhQvdHvi/view?usp=drive_link)
 
 - ⚡ Fun fact **I think I am funny!**
 
